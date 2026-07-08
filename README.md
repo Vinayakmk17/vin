@@ -1,1 +1,1 @@
-Activites.!
+Activites.
